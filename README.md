@@ -1,5 +1,5 @@
 
-## 🌟 Loyiha haqida (Oddiy tilda)
+## 🌟 Loyiha haqida 
 Tasavvur qiling, sizda minglab foydalanuvchilarning fikrlari bor. Ularning har birini o'qib chiqishga vaqt yo'q. Ushbu loyiha — **Inson kabi fikrlaydigan Sun'iy Intellekt** bo'lib, u har qanday gapni o'qiydi va soniyalar ichida uning ijobiy yoki salbiy ekanini aytib beradi.
 
 
